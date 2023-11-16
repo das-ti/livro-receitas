@@ -7,7 +7,7 @@
 - Tortas de Banana e Maçã
 - Vitamina de Abacate
 - Suco Verde Detox
-- Sorvete de Pistache
+- Sorvete de Nozes
 
 
 

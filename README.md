@@ -5,7 +5,8 @@
 - Sopa de Ervilha
 - Lasanha de Carne ao Molho Rose
 - Tortas de Banana e Maçã
-- Vitamina de Abacate 
+- Vitamina de Abacate
+- Suco de Verde Detox 
 
 
 

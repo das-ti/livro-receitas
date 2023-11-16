@@ -6,7 +6,7 @@
 - Lasanha de Carne ao Molho Rose
 - Tortas de Banana e Maçã
 - Vitamina de Abacate
-- Suco de Verde Detox 
+- Suco de Limão Couve e Pepino
 
 
 

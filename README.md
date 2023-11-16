@@ -11,3 +11,4 @@
 
 
 
+_Objetivo desse repositório é treinar habilidade de versionamento com git._

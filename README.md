@@ -5,6 +5,7 @@
 - Sopa de Ervilha
 - Lasanha de Carne ao Molho Rose
 - Tortas de Banana e Maçã
+- Vitamina de Abacate 
 
 
 
